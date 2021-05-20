@@ -22,4 +22,6 @@ A very curious person and always ready to learn about anything new. Have experie
 ##### Growing curiosity for ML and AI.
 
 
+📫 How to reach me: ... Linkdin - https://www.linkedin.com/in/prashant-maikhuri-8021211a0/
+
 
