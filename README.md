@@ -24,7 +24,7 @@ A very curious person and always ready to learn about anything new. Have experie
 
 📫 How to reach me: ... Linkdin - https://www.linkedin.com/in/prashant-maikhuri-8021211a0/
 ###
-                     ... hackerrank - https://www.hackerrank.com/prashantmaikhuri
                      
-
+                     
+⚡ Fun fact: ... Hobbies- Movies,Netflix,Football and Playing Guitar
 
