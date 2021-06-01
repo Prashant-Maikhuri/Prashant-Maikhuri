@@ -10,9 +10,9 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...
-- 📫 How to reach me: ... Linkdin - https://www.linkedin.com/in/prashant-maikhuri-8021211a0/
+- 📫 How to reach me: ... Linkdin - https://www.linkedin.com/in/prashant-maikhuri-8021211a0/ 
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ... Hobbies- Movies,Netflix,Football and Playing Guitar
 -->
 
 #### About Me
@@ -25,5 +25,6 @@ A very curious person and always ready to learn about anything new. Have experie
 📫 How to reach me: ... Linkdin - https://www.linkedin.com/in/prashant-maikhuri-8021211a0/
 ###
                      ... hackerrank - https://www.hackerrank.com/prashantmaikhuri
+                     
 
 
