@@ -16,7 +16,7 @@ Here are some ideas to get you started:
 -->
 
 #### About Me
-I am currently a Sophmore at Vellore Institute of Technology ,Vellore|India.
+I am currently a Pre-Final Year student at Vellore Institute of Technology ,Vellore|India.
 A very curious person and always ready to learn about anything new. Have experience in Python, C++, C, C#, SQL, SQLite and PlSQL.
 
 ##### Growing curiosity for ML and AI.
