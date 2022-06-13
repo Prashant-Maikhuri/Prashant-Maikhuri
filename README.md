@@ -26,5 +26,5 @@ A very curious person and always ready to learn about anything new. Have experie
 ###
                      
                      
-⚡ Fun fact: ... Hobbies- Movies,Netflix,Football and Playing Guitar
+⚡ Fun fact: ... Hobbies- Movies,Netflix,Football(Big MESSI (G.O.A.T) FAN) and Playing Guitar
 
